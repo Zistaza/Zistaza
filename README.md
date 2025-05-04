@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Zistaza
 - 👀 I’m interested in Tech Learning...
-- 🌱 I’m currently learning WEB3, METAVERSE & AI
+- 🌱 I’m currently Agentic AI
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
--Gmail: zinatyamin@gmaiL.com 
+-Gmail: zistaza23@gmail.com
  - 😄 Pronouns: ...
 - ⚡ Fun fact: I love Tea,Trveling and NATURE 
 
